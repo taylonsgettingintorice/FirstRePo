@@ -16,4 +16,4 @@
 >    3. banjo
 >
 >
-![guitar](https://commons.wikimedia.org/wiki/File:GuitareClassique5.png#/media/File:GuitareClassique5.png)      
+![guitar](https://cdn.shopify.com/s/files/1/1750/4595/products/squier-mini-stratocaster-34-size-electric-guitar-black.jpg?v=1620425863&width=713)   
